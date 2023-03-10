@@ -1,2 +1,2 @@
 # test
-this is test repositiry
+то тояни кароче не відкривайте
